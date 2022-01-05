@@ -2,20 +2,20 @@
 
 
 literally made this in 7mins (no cap)
-
+** **
 gui
 
 
 
 
-https://media.discordapp.net/attachments/920395641262325820/927225696240140358/2022-01-02_09.43.08.png?width=852&height=479
+![image](https://user-images.githubusercontent.com/76640636/148220565-b71ce1d5-a44a-4e6c-9da1-54f9ddda9f7a.png)
 
 
 
 
 
+** **
 
-
-#note
+**note**
 
 pls dont hate me gerald <3
