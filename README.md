@@ -13,4 +13,4 @@ literally made this in 7mins (no cap)
 
 #note
 
-pls dont hate me gerlad <3
+pls dont hate me gerald <3
